@@ -1,4 +1,4 @@
 # github-reu
 
-Scott Coughlin loves the Vikings.
+I can't wait to eat dinner today.
 
